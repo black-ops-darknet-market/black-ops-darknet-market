@@ -1,7 +1,7 @@
  
-[<img src="/shared/save.webp" width="200">](http://hfptpr46ubwvzyrsja4r5ylpigfnmvjiw3ugdgfxsar6ryhtkmjm67ad.onion)
+[<img src="/shared/save.webp" width="200">](http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion)
 
-<a href="http://hfptpr46ubwvzyrsja4r5ylpigfnmvjiw3ugdgfxsar6ryhtkmjm67ad.onion"><img src="/shared/edge.webp" alt="Verified blackops dark web" style="max-width: 100%;"></a>
+<a href="http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion"><img src="/shared/edge.webp" alt="Verified blackops dark web" style="max-width: 100%;"></a>
  
  
  Black Ops Darknet Market: A Leader in Privacy and Safety in 2025
@@ -24,4 +24,6 @@ What Can You Sell and Buy?
 
 Black Ops continues to outshine legacy markets by combining operational security with transparent harm reduction programs.
 
-For genuine access to the Black Ops darknet market, always use the official link: **http://hfptpr46ubwvzyrsja4r5ylpigfnmvjiw3ugdgfxsar6ryhtkmjm67ad.onion**
+For genuine access to the Black Ops darknet market, always use the official link: **http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion**
+
+Update:  Thursday 18 September 2025
