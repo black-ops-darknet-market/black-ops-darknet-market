@@ -26,4 +26,6 @@ Black Ops continues to outshine legacy markets by combining operational security
 
 For genuine access to the Black Ops darknet market, always use the official link: **http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion**
 
-Update:  Thursday 18 September 2025
+
+
+Update:  01 October Broken anchors
